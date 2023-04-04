@@ -32,4 +32,4 @@ Language:zh-CN/中文简体 | zh-TW/中文繁體 | English/英語
 
 
 
-[![@:yangnuozhen](https://moe-counter.glitch.me/get/@:yangnuozhen)](https://count.getloli.com/get/@:yangnuozhen?theme=rule34)
+[![@:yangnuozhen](https://count.getloli.com/get/@:yangnuozhen?theme=rule34)
