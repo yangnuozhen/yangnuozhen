@@ -1,5 +1,19 @@
 # Aunt_nuozhen's Github Profile
 
+---
+
+⚠
+
+Note: Preparing for the senior high school entrance examination, DND unless necessary pls.
+
+注意：准备中考，不常在线，非请勿扰，谢谢。
+
+注：高校受験の準備をしていますので、必要のない場合はお邪魔しないでください、ありがとうございます。
+
+⚠
+
+---
+
 Hi there!❤
 
 🚀Here is Aunt's personal Github page.This is my Website guide and some of my links:[top.nuozhen.website.guide()](https://nuozhen.top/)
