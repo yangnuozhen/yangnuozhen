@@ -4,11 +4,11 @@
 
 ⚠
 
-Note: Preparing for the senior high school entrance examination, DND unless necessary pls.
+Note: I am preparing for the high school entrance exam, not online often, please do not disturb if not necessary, thank you.
 
 注意：准备中考，不常在线，非请勿扰，谢谢。
 
-注：高校受験の準備をしていますので、必要のない場合はお邪魔しないでください、ありがとうございます。
+注: 私は高校入学試験の準備をしています。オンラインにあまり接続していません。必要のない場合は邪魔しないでください。ありがとうございます。
 
 ⚠
 
