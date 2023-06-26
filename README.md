@@ -1,18 +1,4 @@
-# Aunt_nuozhen's Github Profile
-
----
-
-⚠
-
-Note: I am preparing for the high school entrance exam, not online often, please do not disturb if not necessary, thank you.
-
-注意：准备中考，不常在线，非请勿扰，谢谢。
-
-注: 私は高校入学試験の準備をしています。オンラインにあまり接続していません。必要のない場合は邪魔しないでください。ありがとうございます。
-
-⚠
-
----
+## Aunt_nuozhen's Github Profile
 
 Hi there!❤
 
