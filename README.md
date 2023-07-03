@@ -10,6 +10,7 @@ Hi there!❤
 
 [![Aunt_nuozhen's GitHub stats](https://github-readme-stats.vercel.app/api?username=yangnuozhen&show_icons=true&theme=synthwave)](https://github.com/yangnuozhen)
 
+![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=yangnuozhen&show_icons=true&theme=synthwave)
 ---
 
 你好。
