@@ -8,6 +8,8 @@ Hi there!❤
 
 🤐I am currently a freshman in high school, so I am not very good at programming, and I will keep learning...
 
+🔌Still learning C#...
+
 [![Aunt_nuozhen's GitHub stats](https://github-readme-stats.vercel.app/api?username=yangnuozhen&show_icons=true&theme=synthwave)](https://github.com/yangnuozhen)
 
 ---
@@ -27,8 +29,6 @@ Hi there!❤
 我喜歡我不熟悉的東西和可愛的東西。
 
 無明確性別認知，性別對我而言不重要。
-
-初中的时候曾經因爲寫了一點小東西用在學校多媒體上被處分了。
 
 C# 正在學，想做很多很多的事。
 
