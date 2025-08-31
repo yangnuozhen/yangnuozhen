@@ -6,7 +6,7 @@ Hi there!❤
 
 🗣You can call me as Aunt_nuozhen,Aunt or nuozhen...If you like!
 
-🤐I am currently a freshman in high school, so I am not very good at programming, and I will keep learning...
+🤐I am currently in high school, so I am not very good at programming, and I will keep learning...
 
 🔌Still learning C#...
 
@@ -20,7 +20,7 @@ Hi there!❤
 
 你可以叫我 Aunt_nuozhen,Aunt 或者 nuozhen...我不介意，你開心就好。
 
-目前高二，寫碼技術力不高。還在學習中。
+目前高三，寫碼技術力不高。還在學習中。
 
 寫碼成癮，經常邊寫作業邊寫碼，或者半夜爬起來寫。
 
